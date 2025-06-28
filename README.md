@@ -152,8 +152,3 @@ Mitta Kedareswari: kedareswarimitta@gmail.com
 
 🔗 LinkedIn:
 Mitta Kedareswari
-LinkedIn:https://www.linkedin.com/in/mitta-kedareswari/
-Email:kedareswarimitta@gmail.com
-
-Project Date: 28 June 2025
-Institution: Rajeev Gandhi Memorial College Of Engineering and Technology
